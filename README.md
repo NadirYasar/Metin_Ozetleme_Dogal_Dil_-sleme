@@ -1,0 +1,1 @@
+# Metin_Ozetleme_Dogal_Dil_-sleme
